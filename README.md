@@ -1,4 +1,4 @@
-## السلام عليكم 👋
+## السلام عليكم ⵎⵔⵃⴱⴰ ⵏⵓⵏ👋
 # 💫 About Me:
 Passionate about development and data analysis<br>My approach combines development, artificial intelligence, and performance optimization<br>Involved in the full development lifecycle of mobile and web applications.<br>
 
